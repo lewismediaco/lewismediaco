@@ -1,16 +1,27 @@
-## Hi there 👋
+# Brandon Lewis
 
-<!--
-**brandondubduecelewis-design/brandondubduecelewis-design** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Founder, Lewis Media Co.** — Evansville, IN
 
-Here are some ideas to get you started:
+Cinematic short-form video for local businesses. I help local brands turn attention into customers with scroll-stopping reels, content engines, and AI spokesperson ads.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🇺🇸 U.S. Army Veteran · PMP · Six Sigma Black Belt · IATF 16949 Internal Auditor
+
+## What I Do
+
+- 🎬 **Short-form video** — reels and ads built to sell, not just look good
+- ⚙️ **Content engines** — monthly retainers that keep a business posting every week
+- 🤖 **AI spokesperson ads** — on-brand video ads without a camera crew
+- 📈 **Process-driven delivery** — 10+ years in manufacturing & continuous improvement behind every project
+
+## Lewis Media Co.
+
+Monthly content retainers for local businesses — Spark, Engine, and Dominance tiers, plus single-video projects.
+
+- 🌐 Website: https://muse.ai/s/lewis-media-co-website-xoxs6wcjhxrnxrxo
+- 📸 Instagram: https://www.instagram.com/blewismusic
+- 📱 (812) 648-0062
+
+## Also
+
+- 🏍️ Wing B — my merch brand
+- 🎵 Music producer (Brandon)
