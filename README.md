@@ -20,6 +20,7 @@ Monthly content retainers for local businesses — Spark, Engine, and Dominance 
 - 🌐 Website: https://muse.ai/s/lewis-media-co-website-xoxs6wcjhxrnxrxo
 - 📸 Instagram: https://www.instagram.com/blewismusic
 - 📱 (812) 648-0062
+- ☕ Support the build: https://www.gofundme.com/f/backing-brandons-vision-for-lewis-media-co
 
 ## Also
 
