@@ -28,7 +28,7 @@ Monthly content retainers for local businesses — Spark $750/mo (4 videos) · E
 - 📘 Facebook: https://www.facebook.com/UntouchableEntGrp
 - 💼 LinkedIn (company): https://www.linkedin.com/company/lewis-media-co
 - 💼 LinkedIn (personal): https://www.linkedin.com/in/brandon-ryan-lewis-brown-7072b651
-- 🎧 Suno: https://suno.com/@brandon_dubduece_lewis
+- 🎧 Suno: https://suno.com/@lewismediaco
 - 📱 (812) 648-0062
 - ☕ Support the build: https://www.gofundme.com/f/backing-brandons-vision-for-lewis-media-co
 
