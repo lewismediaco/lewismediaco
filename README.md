@@ -30,7 +30,7 @@ Monthly content retainers for local businesses — Spark $750/mo (4 videos) · E
 - 💼 LinkedIn (personal): https://www.linkedin.com/in/brandon-ryan-lewis-brown-7072b651
 - 🎧 Suno: https://suno.com/@lewismediaco
 - 🔊 SoundCloud: https://soundcloud.com/lewismediaco
-- 👻 Snapchat: https://www.snapchat.com/add/blewis20262079
+- 👻 Snapchat: https://www.snapchat.com/add/lewismediaco
 - 📱 (812) 648-0062
 - ☕ Support the build: https://www.gofundme.com/f/backing-brandons-vision-for-lewis-media-co
 
